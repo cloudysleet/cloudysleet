@@ -1,5 +1,5 @@
 # About:
-Hey, i'm Cloudy! I like to play Minecraft. I also make resource packs for it!
+Hey, i'm Cloudy! I like to play Minecraft. I also make resource packs for it for fun!
 
 # Social:
 - Discord: Cloudysleet#0073
