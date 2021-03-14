@@ -3,7 +3,7 @@ Hey, i'm Cloudy! I like to play Minecraft. I also make resource packs for it for
 
 # Social:
 - Discord: Cloudysleet#0073
-- Twitter: https://twitter.com/Cloudy_Sky_34
+- Twitter: https://twitter.com/Cloudysleet
 - Planet MC: https://planetminecraft.com/member/cloudysleet
 - Website: https://cloudysleet.tk
 
