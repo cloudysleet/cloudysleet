@@ -1,15 +1,15 @@
 # About:
 Hey, i'm Cloudy! I like to play Minecraft. I also make resource packs for it for fun!
-⋆ ʜᴇ / ʜɪᴍ
-⋆ ᴠɪʀɢᴏ (♍︎)
+- ʜᴇ / ʜɪᴍ
+- ᴠɪʀɢᴏ (♍︎)
 
 ---
 
 # Social:
-⋆ Discord: Cloudysleet#9226
-⋆ Twitter: https://twitter.com/Cloudysleet
-⋆ Planet Minecraft: https://planetminecraft.com/member/cloudysleet
-⋆ Website: https://cloudysleet.tk
+- Discord: Cloudysleet#9226
+- Twitter: https://twitter.com/Cloudysleet
+- Planet Minecraft: https://planetminecraft.com/member/cloudysleet
+- Website: https://cloudysleet.tk
 
 ---
 
