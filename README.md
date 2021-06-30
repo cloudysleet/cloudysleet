@@ -1,7 +1,7 @@
 # About:
 Hey, i'm Cloudy! I like to play Minecraft. I also make resource packs for it for fun!
-- ʜᴇ / ʜɪᴍ
-- ᴠɪʀɢᴏ (♍︎)
+- ♍︎ ᴠɪʀɢᴏ
+- 👦 ʜᴇ / ʜɪᴍ
 
 ---
 
